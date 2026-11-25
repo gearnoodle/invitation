@@ -6,23 +6,29 @@
 
 An invitation to design how all of humanity lives together, on our one shared planet. It's the only one we've got. This is not a plan. Nobody has to follow it. I write it, but anyone is welcome to add an idea, a correction or a post.
 
-## Nine points for anyone who wants to join in
+## Ten points for anyone who wants to join in
 
-All nine sit inside one ultimate aim: **one day, everyone finally has enough.** That's what this design invites us towards.
+All ten sit inside one ultimate aim: **one day, everyone finally has enough.** That's what this design invites us towards.
 
 ![eight-points.png](https://invitation.mataroa.blog/images/315f852a.png)
 
-### The ground rule
+### 0. The ground rule
 
 > **Anyone can walk away.**
 >
 > You can leave any group, any project, any leader, at any time. Nobody can trap you, and nobody is bound to stay. Everything else stands on this.
 
-### The evolution
+### 1. The evolution
 
 > **Everything can be changed when there is great need.**
 >
 > Even the foundation above it. Nothing in this design is fixed forever. When there is great need, we change it.
+
+### 2. The right to fork
+
+> **Anyone can fork this design.**
+>
+> If it won't change the way you need, take it, change it, and gather others who want to go there. At best the designs still work together, but it's okay if they don't.
 
 ### The foundation
 
@@ -34,7 +40,7 @@ All nine sit inside one ultimate aim: **one day, everyone finally has enough.** 
 
 1. **No blame.** When something goes wrong, look for causes, not someone to blame.
 2. **No credit.** Nobody needs praise, because what we do grows from what others gave us. Nobody owns what we made together.
-3. **Mistakes welcome.** We learn mostly from mistakes, our own or someone else's. Even all nine of these points could use fixing, this one included. If so, we change them.
+3. **Mistakes welcome.** We learn mostly from mistakes, our own or someone else's. Even all ten of these points could use fixing, this one included. If so, we change them.
 
 ### Three asks
 
@@ -44,7 +50,7 @@ All nine sit inside one ultimate aim: **one day, everyone finally has enough.** 
 
 Everything else is an invitation. Much of a good life is already here: trees, a long lunch, a friend to sit with.
 
-Each of these nine points will get its own post later.
+Each of these ten points will get its own post later.
 
 ## The simple thing
 
