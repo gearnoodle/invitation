@@ -32,6 +32,8 @@ Who decides? Not one leader. The same ideas that keep power from piling up help 
 
 That's why the ground rule is at the very bottom, like dirt beneath grass. Whatever changes, anyone can still walk away. If a change goes wrong, or someone uses "great need" as an excuse, people can leave. Power that needs you to stay doesn't last.
 
+And if the design won't change, anyone can fork it.
+
 ## 6. This design too
 
 The third proposition, mistakes welcome, already says all ten points could use fixing. The evolution says how: when the need is great, in the open, a little at a time.
