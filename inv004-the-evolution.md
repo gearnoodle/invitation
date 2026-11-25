@@ -34,7 +34,7 @@ That's why the ground rule is at the very bottom, like dirt beneath grass. Whate
 
 ## 6. This design too
 
-The third proposition, mistakes welcome, already says all nine points could use fixing. The evolution says how: when the need is great, in the open, a little at a time.
+The third proposition, mistakes welcome, already says all ten points could use fixing. The evolution says how: when the need is great, in the open, a little at a time.
 
 This blog is an evolving plan. Your corrections are part of it.
 
