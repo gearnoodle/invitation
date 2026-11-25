@@ -26,13 +26,17 @@ In the old world, this made people angry, and with good reason. Their work was u
 
 What's left is the plain truth AI made visible: almost nothing anyone makes is theirs alone. It never was.
 
-## 4. No credit isn't no thanks
+## 4. Praise the work and the effort, not the person
 
 Praise says "you're great." That's a judgement, and it turns people into scores.
 
 Praising a person is even a little dangerous. People start chasing praise and fearing its loss. Those who get it rise, and those who don't feel smaller. Studies of children found that praising them for being clever made them avoid hard tasks, so they wouldn't lose the label.
 
 So praise anything except the person. "This soup is wonderful." "That idea really helped." "The bench looks beautiful." Talk about the thing and what it did, not about who's better.
+
+Noticing effort is fine too. "You really kept at that" tells someone you saw what they went through. The same studies found that children praised for effort took on harder tasks and kept going. Just keep it as noticing, not ranking. Effort grew from others too, and "try harder" was the old world's favourite pressure.
+
+And if someone praises you? Take it the other way, as thanks for what you did. You can gently say so: "Thanks, I'm glad the soup turned out well," or "Thanks, lots of people helped with that." No need to correct anyone. Just turn the praise toward the thing.
 
 Thanks says "that helped." That's just telling you what your action did. Thanks stays. It's a gift, and like every gift here, nothing is owed back.
 
