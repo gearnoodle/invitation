@@ -6,9 +6,9 @@
 
 An invitation to design how all of humanity lives together, on our one shared planet. It's the only one we've got. This is not a plan. Nobody has to follow it. I write it, but anyone is welcome to add an idea, a correction or a post.
 
-## Eight points for anyone who wants to join in
+## Nine points for anyone who wants to join in
 
-All eight sit inside one ultimate aim: **one day, everyone finally has enough.** That's what this design invites us towards.
+All nine sit inside one ultimate aim: **one day, everyone finally has enough.** That's what this design invites us towards.
 
 ![eight-points.png](https://invitation.mataroa.blog/images/315f852a.png)
 
@@ -17,6 +17,12 @@ All eight sit inside one ultimate aim: **one day, everyone finally has enough.**
 > **Anyone can walk away.**
 >
 > You can leave any group, any project, any leader, at any time. Nobody can trap you, and nobody is bound to stay. Everything else stands on this.
+
+### The evolution
+
+> **Everything can be changed when there is great need.**
+>
+> Even the foundation above it. Nothing in this design is fixed forever. When there is great need, we change it.
 
 ### The foundation
 
@@ -28,7 +34,7 @@ All eight sit inside one ultimate aim: **one day, everyone finally has enough.**
 
 1. **No blame.** When something goes wrong, look for causes, not someone to blame.
 2. **No credit.** Nobody needs praise, because what we do grows from what others gave us. Nobody owns what we made together.
-3. **Mistakes welcome.** We learn mostly from mistakes, our own or someone else's. Even all eight of these points could use fixing, this one included. If so, we change them.
+3. **Mistakes welcome.** We learn mostly from mistakes, our own or someone else's. Even all nine of these points could use fixing, this one included. If so, we change them.
 
 ### Three asks
 
@@ -38,7 +44,7 @@ All eight sit inside one ultimate aim: **one day, everyone finally has enough.**
 
 Everything else is an invitation. Much of a good life is already here: trees, a long lunch, a friend to sit with.
 
-Each of these eight points will get its own post later.
+Each of these nine points will get its own post later.
 
 ## The simple thing
 
