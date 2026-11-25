@@ -2,7 +2,7 @@
 
 > Published on Nov 25, 2026
 
-The right to fork says anyone can take this design and make their own. [INV005](https://invitation.mataroa.blog/blog/inv005-forking/) said that at best the designs still work together, but it's okay if they don't. Yet there's only one planet. What happens when two forks need the same river?
+The right to fork says anyone can take this design and make their own. INV005 said that at best the designs still work together, but it's okay if they don't. Yet there's only one planet. What happens when two forks need the same river?
 
 ## 1. The problem
 

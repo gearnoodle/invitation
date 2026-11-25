@@ -34,7 +34,7 @@ All ten sit inside one ultimate aim: **one day, everyone finally has enough.** T
 
 > **Nothing is owed back.**
 >
-> Every gift, every help, every thanks asks nothing back. In many gift economies, gifts quietly turned into debts. Whenever that starts to happen, we come back here. If you remember only one thing from this blog, remember this. How could a world work like that? **Because one day, everyone finally has enough.** Want to know more? Read [INV001: Nothing is owed back](https://invitation.mataroa.blog/blog/inv001-nothing-is-owed-back/) next.
+> Every gift, every help, every thanks asks nothing back. In many gift economies, gifts quietly turned into debts. Whenever that starts to happen, we come back here. If you remember only one thing from this blog, remember this. How could a world work like that? **Because one day, everyone finally has enough.** Want to know more? Read INV001: Nothing is owed back next.
 
 ### Three propositions
 

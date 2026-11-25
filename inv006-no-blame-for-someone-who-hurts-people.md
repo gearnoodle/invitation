@@ -12,7 +12,7 @@ This is where people push hardest, and they should.
 
 ## 2. The other half of no credit
 
-[INV003](https://invitation.mataroa.blog/blog/inv003-no-credit-for-what-i-did/) said blame and credit come as a pair. What you did well grew from others: a language, food, skills, tools, luck.
+INV003 said blame and credit come as a pair. What you did well grew from others: a language, food, skills, tools, luck.
 
 Harm grows the same way. The person who hurts others also came from somewhere: what was done to them, what they lacked, what they were taught, fear, illness, one bad moment.
 
